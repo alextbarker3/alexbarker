@@ -41,4 +41,4 @@ Currently pursuing CFA Level I certification while building a portfolio of proje
 I'm interested in opportunities across financial services, data analytics, risk management, and technology roles where analytical rigor and stakeholder management create real business value.
 
 📧 alextbarker3@gmail.com
-📍 Oxfordshire, UK
+📍 Gloucestershire, UK
